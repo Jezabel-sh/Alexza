@@ -17,7 +17,10 @@ te cuento yo otro chiste...
 ¿Có mo llaman a la Guardia Civil en Holanda?
 VandeVerde
 
+
 Quiero comer hamburguesa con queuso cebolla y champiñones 
 
 y pongo más líneas para rellenar
+
+ajajajajjajaajajja gracias por el chiste
 
